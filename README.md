@@ -9,3 +9,5 @@ If opening a meaningless pull request here will stop you from spamming real open
 Is this project amazing?
 
 * Yes :)
+
+EDIT-EVERYONE SPAM PULL REQUESTS
